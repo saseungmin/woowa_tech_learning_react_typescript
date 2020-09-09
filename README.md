@@ -4,4 +4,4 @@
 
 ### ✌ 2회차 (9월 3일 목) : https://haranglog.tistory.com/14
 
-### ✌ 3회차 (9월 8일 화) : 작성 예정..
+### ✌ 3회차 (9월 8일 화) : https://haranglog.tistory.com/15
