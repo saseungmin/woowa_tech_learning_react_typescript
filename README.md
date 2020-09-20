@@ -15,4 +15,4 @@
 
 ### ✌ 5회차 (9월 15일 화) : https://haranglog.tistory.com/19
 
-### ✌ 6회차 (9월 17일 화) : 주말 작성예정..
+### ✌ 6회차 (9월 17일 화) : https://haranglog.tistory.com/20
