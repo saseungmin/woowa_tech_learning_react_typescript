@@ -19,4 +19,4 @@
 
 ### ✌ 7회차 (9월 22일 화) : https://haranglog.tistory.com/21
 
-### ✌ 8회차(마지막차) (9월 24일 목) : 작성 예정..
+### ✌ 8회차(마지막차) (9월 24일 목) : https://haranglog.tistory.com/22
